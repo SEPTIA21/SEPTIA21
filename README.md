@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SEPTIA21
 - 👀 Saya Tertarik dengnmu
 - 🌱 saya sedang belajar mandiri 
-- 💞️ I’m looking to collaborate on adna.tech 
+- 💞️ I’m looking to collaborate on RUMAH MERTUA
 
 
 <!---
